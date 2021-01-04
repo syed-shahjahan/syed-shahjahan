@@ -1,4 +1,4 @@
-### Hi there, I'm Syed Shahjahan S I, Backend Developer 🙂
+### Hey there, I'm Syed Shahjahan S I, SFCC Developer 🙂
 
 ---
 
